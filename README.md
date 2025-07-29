@@ -14,6 +14,6 @@ As a BA, I believe in asking smarter questions; and prompts help us do just that
 Connect with me on [LinkedIn](https://www.linkedin.com/in/ayomide-edu-942306200)  
 Or book a clarity session: [Calendly](https://calendly.com/ayomidedu208/30min)
 
----
+
 
 🦋 Built with audacity, consistency, and honesty.  
